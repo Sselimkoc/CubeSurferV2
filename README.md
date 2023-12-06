@@ -7,3 +7,5 @@ Muhammed Musab Erdemir 19290305
 
 Selim Koc 19290317
 
+
+[![Watch the video](https://i.stack.imgur.com/Vp2cE.png)]([https://www.youtube.com/watch?v=AeplCUslc7Q])
